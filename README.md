@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Soubh
-- 💞️ In love with Gen AI
+- 💞️ In love with Agentic AI
 - 📫 How to reach me : soubhagya.jena@gmail.com
 
 <!---
